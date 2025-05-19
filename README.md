@@ -1,6 +1,6 @@
 # MODTHAI
 ====================================
-### Tokimeki Memorial: Forever With You Emotional V1.1.0 Mod Thai [แปลจาก Gemini AI]
+### Tokimeki Memorial: Forever With You Emotional V1.1.0 Mod Thai [แปลจาก Gemini AI] No.715
 https://web.facebook.com/groups/624645023291178/posts/705254021896944
 
 ![1](https://github.com/user-attachments/assets/37c38300-4e3b-4cde-938b-d6ad8c799ef6)
