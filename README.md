@@ -18,3 +18,9 @@ https://www.facebook.com/groups/624645023291178/posts/692772389811774
 ![494152226_2441236206230691_2494300397927064988_n](https://github.com/user-attachments/assets/247833c8-183a-4065-832d-82534e4836b2)
 
 ====================================
+### FRONT MISSION 2: Remake v1.0.1 [แปลโดย Google Translate 100%]
+https://www.facebook.com/groups/624645023291178/posts/686544003767946/
+
+![492153315_2432259463795032_6791724238047925490_n](https://github.com/user-attachments/assets/dbd3bc04-d3ff-4d9f-a17c-f9d0ec528d3d)
+
+====================================
