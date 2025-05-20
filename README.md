@@ -1,5 +1,11 @@
 # MODTHAI
 ====================================
+### Yasha Legends of the Demon Blade V1.0.0 Mod Thai+Ch No.716
+https://web.facebook.com/groups/624645023291178/posts/707212108367802
+
+![2025052017531900](https://github.com/user-attachments/assets/7eb05e03-c73d-4594-a8fd-4241e0cfdd8c)
+
+====================================
 ### Tokimeki Memorial: Forever With You Emotional V1.1.0 Mod Thai [แปลจาก Gemini AI] No.715
 https://web.facebook.com/groups/624645023291178/posts/705254021896944
 
