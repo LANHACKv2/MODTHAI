@@ -42,3 +42,9 @@ https://www.facebook.com/groups/624645023291178/posts/683671670721846/
 ![490963303_2428761784144800_2588860970897994760_n](https://github.com/user-attachments/assets/1336b9f1-4b25-4261-aaa3-0bd386c6d0c4)
 
 ====================================
+### Super Mario Odyssey v1.3.0 [แปลโดย Google Translate 100%]
+https://www.facebook.com/groups/624645023291178/posts/683667937388886/
+
+![491353015_2428748830812762_1730525953901531811_n](https://github.com/user-attachments/assets/8ac1b1c0-3096-44e1-b070-43e44991dcdc)
+
+====================================
