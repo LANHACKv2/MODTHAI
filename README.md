@@ -30,3 +30,8 @@ https://www.facebook.com/groups/624645023291178/posts/686544003767946/
 ![492153315_2432259463795032_6791724238047925490_n](https://github.com/user-attachments/assets/dbd3bc04-d3ff-4d9f-a17c-f9d0ec528d3d)
 
 ====================================
+### World of Horror v1.0.2 [แปลจากกูเกิลแปล]
+https://www.facebook.com/groups/624645023291178/posts/686541840434829/
+
+![492084617_2432257123795266_5296387021326322536_n](https://github.com/user-attachments/assets/4b43fa09-420e-4265-ab60-0a6316996230)
+====================================
