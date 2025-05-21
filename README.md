@@ -72,3 +72,9 @@ https://www.facebook.com/groups/624645023291178/posts/660421506380196/
 ![484804062_2397897183897927_8385746286667658325_n](https://github.com/user-attachments/assets/5dc180ed-f9b1-436a-9187-442189780cab)
 
 ====================================
+### Hyrule Warriors: Age of Calamity v1.3.0+4DLCs [แปลจาก Gemini AI]
+https://www.facebook.com/groups/624645023291178/posts/659252579830422/
+
+![484337055_2396346037386375_777971106575199542_n](https://github.com/user-attachments/assets/d6e3e099-d0b1-4993-8c5c-3252b6e82c38)
+
+====================================
