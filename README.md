@@ -48,3 +48,9 @@ https://www.facebook.com/groups/624645023291178/posts/683667937388886/
 ![491353015_2428748830812762_1730525953901531811_n](https://github.com/user-attachments/assets/8ac1b1c0-3096-44e1-b070-43e44991dcdc)
 
 ====================================
+### Atelier Yumia: The Alchemist of Memories & the Envisioned Land v1.0.1 [แปลจาก Gemini AI]
+https://www.facebook.com/groups/624645023291178/posts/671575825264764/
+
+![487913939_2412161999138112_284907496444520672_n](https://github.com/user-attachments/assets/00d14376-0a53-4adc-a6fa-cc6e838d32ad)
+
+====================================
