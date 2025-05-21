@@ -35,3 +35,8 @@ https://www.facebook.com/groups/624645023291178/posts/686541840434829/
 
 ![492084617_2432257123795266_5296387021326322536_n](https://github.com/user-attachments/assets/4b43fa09-420e-4265-ab60-0a6316996230)
 ====================================
+### Metroid Dread v2.1.0 [แปลโดย Google Translate 100%]
+https://www.facebook.com/groups/624645023291178/posts/683671670721846/
+
+![490963303_2428761784144800_2588860970897994760_n](https://github.com/user-attachments/assets/1336b9f1-4b25-4261-aaa3-0bd386c6d0c4)
+====================================
