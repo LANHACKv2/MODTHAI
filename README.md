@@ -54,3 +54,9 @@ https://www.facebook.com/groups/624645023291178/posts/671575825264764/
 ![487913939_2412161999138112_284907496444520672_n](https://github.com/user-attachments/assets/00d14376-0a53-4adc-a6fa-cc6e838d32ad)
 
 ====================================
+### Xenoblade Chronicles 3 v2.2.0+4DLCs [แปลจาก Gemini AI] No.695
+https://www.facebook.com/groups/624645023291178/posts/667194935702853/
+
+![486476247_2406426066378372_318438813627317533_n](https://github.com/user-attachments/assets/48489e4a-7706-4984-864d-47c96997196e)
+
+====================================
