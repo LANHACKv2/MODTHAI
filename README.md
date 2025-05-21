@@ -60,3 +60,9 @@ https://www.facebook.com/groups/624645023291178/posts/667194935702853/
 ![486476247_2406426066378372_318438813627317533_n](https://github.com/user-attachments/assets/48489e4a-7706-4984-864d-47c96997196e)
 
 ====================================
+### Xenoblade Chronicles X: Definitive Edition v1.0.1 [แปลจาก Gemini AI] No.694
+https://www.facebook.com/groups/624645023291178/posts/666940579061622/
+
+![486413812_2406096123078033_6851029531457228214_n](https://github.com/user-attachments/assets/78779f8f-0f85-482c-8f0d-2b9d5f32a87c)
+
+====================================
