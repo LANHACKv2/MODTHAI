@@ -1,6 +1,6 @@
 # MODTHAI
 ====================================
-Cookie Cutter V1.0.0 Mod Thai No.719 [Gemini AI]
+### Cookie Cutter V1.0.0 Mod Thai No.719 [Gemini AI]
 https://web.facebook.com/groups/624645023291178/posts/709327151489631
 
 ![3](https://github.com/user-attachments/assets/8a7659a0-1327-4c6a-95b6-cc347d917c75)
@@ -96,12 +96,16 @@ https://www.facebook.com/groups/624645023291178/posts/659252579830422/
 ![484337055_2396346037386375_777971106575199542_n](https://github.com/user-attachments/assets/d6e3e099-d0b1-4993-8c5c-3252b6e82c38)
 
 ====================================
-
-Shin Megami Tensei III Nocturne HD Remaster V1.0.3 Mod Thai [Gemini AI]
-
+### Shin Megami Tensei III Nocturne HD Remaster V1.0.3 Mod Thai [Gemini AI]
 https://web.facebook.com/groups/624645023291178/posts/627414346347579
 
 ![1](https://github.com/user-attachments/assets/9aab30ca-ebc4-40bb-825e-e8c6306bd3ec)
+
+====================================
+### Chrono Cross: The Radical Dreamers Edition v1.0.2  เกม. No. 387 [แปลเฉพาะ Chrono Cross ส่วน Radical Dreamers ไม่ได้แปล][แปลจากกูเกิลแปล]
+https://www.facebook.com/groups/624645023291178/posts/655390750216605/
+
+![482229716_2391394217881557_5871092496808903232_n (1)](https://github.com/user-attachments/assets/9e7a9e9e-4eff-400c-a47b-a3f5a2217a68)
 
 ====================================
 
