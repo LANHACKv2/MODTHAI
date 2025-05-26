@@ -1,5 +1,11 @@
 # MODTHAI
 ====================================
+### Duck Detective The Ghost of Glamping V2.2.5 Mod Thai No720 [Gemini AI]
+https://web.facebook.com/groups/624645023291178/posts/711400051282341
+
+![1_resized_355x200](https://github.com/user-attachments/assets/6887a1cf-64b7-4f10-9dfc-eccc7f9edb2f)
+
+====================================
 ### Cookie Cutter V1.0.0 Mod Thai No.719 [Gemini AI]
 https://web.facebook.com/groups/624645023291178/posts/709327151489631
 
@@ -120,3 +126,10 @@ https://web.facebook.com/groups/624645023291178/posts/710308888058124
 ![499718402_4121374204812191_637036907976806462_n](https://github.com/user-attachments/assets/f996855e-6a04-4df6-bfe9-cace76806f92)
 
 ====================================
+### Duck Detective The Secret Salam V1.0.12 Mod Thai พ็อต PC No.473
+https://web.facebook.com/groups/624645023291178/posts/711399257949087
+
+![Duck Detective_ The Secret Salami_2024-06-09_08-08-41_resized_355x200](https://github.com/user-attachments/assets/0a504eb6-0f0e-411c-9daf-0a9e9e24bcc5)
+
+====================================
+
