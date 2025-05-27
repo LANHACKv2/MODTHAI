@@ -1,5 +1,11 @@
 # MODTHAI
 ====================================
+### MotoGP™25 V1.0.2 Mod Thai  No720 [Gemini AI]
+https://web.facebook.com/groups/624645023291178/posts/712095844546095
+
+![1_resized_355x200](https://github.com/user-attachments/assets/8b0657fb-d3f3-4248-93cb-c35a6db2327c)
+
+====================================
 ### Duck Detective The Ghost of Glamping V2.2.5 Mod Thai No720 [Gemini AI]
 https://web.facebook.com/groups/624645023291178/posts/711400051282341
 
