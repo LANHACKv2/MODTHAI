@@ -1,5 +1,11 @@
 # MODTHAI
 ====================================
+### Wind Story Gemini AI No.722
+https://web.facebook.com/groups/624645023291178/posts/713549527734060
+
+![11](https://github.com/user-attachments/assets/d432afd1-e431-4f31-ab71-30eee6d99191)
+
+====================================
 ### MotoGP™25 V1.0.2 Mod Thai  No721 [Gemini AI]
 https://web.facebook.com/groups/624645023291178/posts/712095844546095
 
