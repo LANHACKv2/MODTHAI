@@ -1,5 +1,11 @@
 # MODTHAI
 ====================================
+### Fuga Melodies of Steel 3 V1.0.0 Mod Thai [Gemini AI] No.723
+https://web.facebook.com/groups/624645023291178/posts/714225417666471
+
+![2025053020581800](https://github.com/user-attachments/assets/4daf0e63-9960-47cd-a1e2-580f3bdddcc3)
+
+====================================
 ### Wind Story Gemini AI No.722
 https://web.facebook.com/groups/624645023291178/posts/713549527734060
 
