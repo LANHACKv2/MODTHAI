@@ -150,4 +150,10 @@ https://web.facebook.com/groups/624645023291178/posts/711399257949087
 ![Duck Detective_ The Secret Salami_2024-06-09_08-08-41_resized_355x200](https://github.com/user-attachments/assets/0a504eb6-0f0e-411c-9daf-0a9e9e24bcc5)
 
 ====================================
+### Hollow Knight V1.4.3.2 [พอร์ตจากม็อดภาษาไทยของ PC โดยเพจอาสาแปล]
+https://www.facebook.com/groups/624645023291178/posts/655388300216850/
+
+![hl](https://github.com/user-attachments/assets/b8e0eaed-26be-463a-bbe3-90ef2e132d3b)
+
+====================================
 
