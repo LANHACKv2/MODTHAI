@@ -162,4 +162,9 @@ https://www.facebook.com/groups/624645023291178/posts/655386483550365/
 ![st](https://github.com/user-attachments/assets/5e6d4d99-b614-44fa-8986-75d6fa69cbb8)
 
 ====================================
+### The Legend of Heroes: Trails Through Daybreak II v1.0.1 [แปลจาก Gemini AI]
+https://www.facebook.com/groups/624645023291178/posts/653553090400371/
 
+![2break1](https://github.com/user-attachments/assets/c34dffeb-3aeb-40e7-80c5-b3f462eb6b6e)
+
+====================================
