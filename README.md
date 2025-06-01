@@ -156,4 +156,10 @@ https://www.facebook.com/groups/624645023291178/posts/655388300216850/
 ![hl](https://github.com/user-attachments/assets/b8e0eaed-26be-463a-bbe3-90ef2e132d3b)
 
 ====================================
+### Stardew Valley V1.5.4.2 [พอร์ตจากม็อดภาษาไทยของ PC โดย Translator Army x 'ELL]
+https://www.facebook.com/groups/624645023291178/posts/655386483550365/
+
+![st](https://github.com/user-attachments/assets/5e6d4d99-b614-44fa-8986-75d6fa69cbb8)
+
+====================================
 
