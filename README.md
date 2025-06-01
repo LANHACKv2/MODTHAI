@@ -1,5 +1,11 @@
 # MODTHAI
 ====================================
+### Snipperclips Plus: Cut it Out, Together! [Gemini AI] No.724
+https://web.facebook.com/groups/624645023291178/posts/715682100854136
+
+![1](https://github.com/user-attachments/assets/8ce8db47-e587-458d-9054-a7924fc8d41e)
+
+====================================
 ### Fuga Melodies of Steel 3 V1.0.0 Mod Thai [Gemini AI] No.723
 https://web.facebook.com/groups/624645023291178/posts/714225417666471
 
