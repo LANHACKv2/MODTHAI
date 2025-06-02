@@ -1,5 +1,11 @@
 # MODTHAI
 ====================================
+### Rift of the NecroDancer V1.3.0 Mod Thai [Gemini AI] No.725
+https://web.facebook.com/groups/624645023291178/posts/716408747448138
+
+![1](https://github.com/user-attachments/assets/15a62316-6a6e-4472-bf4e-5de30d7bbd15)
+
+====================================
 ### Snipperclips Plus: Cut it Out, Together! [Gemini AI] No.724
 https://web.facebook.com/groups/624645023291178/posts/715682100854136
 
