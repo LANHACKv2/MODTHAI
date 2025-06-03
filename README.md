@@ -1,5 +1,11 @@
 # MODTHAI
 ====================================
+### FANTASY LIFE i: The Girl Who Steals Time v1.2.1 [แปลจาก Gemini AI] No.726
+https://www.facebook.com/groups/624645023291178/posts/716743317414681
+
+![503801537_2472867043067607_7065919663947776850_n](https://github.com/user-attachments/assets/e8d07fa5-c02d-4168-aa8b-28daf0a2d84b)
+
+====================================
 ### Rift of the NecroDancer V1.3.0 Mod Thai [Gemini AI] No.725
 https://web.facebook.com/groups/624645023291178/posts/716408747448138
 
