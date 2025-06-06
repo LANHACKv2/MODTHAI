@@ -1,5 +1,11 @@
 # MODTHAI
 ====================================
+### Lovecraft's Untold Stories  [Gemini AI] No.727
+https://web.facebook.com/groups/624645023291178/posts/718569790565367
+
+![1](https://github.com/user-attachments/assets/fe6752c6-54d2-4e07-8bee-dd8dbdad01c6)
+
+====================================
 ### FANTASY LIFE i: The Girl Who Steals Time v1.2.1 [แปลจาก Gemini AI] No.726
 https://www.facebook.com/groups/624645023291178/posts/716743317414681
 
