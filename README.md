@@ -1,5 +1,11 @@
 # MODTHAI
 ====================================
+### Rune Factory Guardians of Azuma V1.0.2 Mod Thai [Gemini AI] No.730 
+https://web.facebook.com/groups/624645023291178/posts/720708470351499
+
+![1](https://github.com/user-attachments/assets/85741694-798d-4b49-873b-eb13d7f4d972)
+
+====================================
 ### Onimusha 2: Samurai's Destiny v1.0.1 [แปลจาก Gemini AI] No.729
 https://www.facebook.com/groups/624645023291178/posts/720135010408845/
 
