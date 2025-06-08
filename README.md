@@ -1,5 +1,11 @@
 # MODTHAI
 ====================================
+### Uncle Chop's Rocket Shop [Gemini AI] No.728
+https://web.facebook.com/groups/624645023291178/posts/720060570416289
+
+![2](https://github.com/user-attachments/assets/835c3cc8-99e9-419a-97d4-60035b04ed80)
+
+====================================
 ### Lovecraft's Untold Stories  [Gemini AI] No.727
 https://web.facebook.com/groups/624645023291178/posts/718569790565367
 
