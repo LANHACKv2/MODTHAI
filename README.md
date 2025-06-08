@@ -1,5 +1,11 @@
 # MODTHAI
 ====================================
+### Onimusha 2: Samurai's Destiny v1.0.1 [แปลจาก Gemini AI]
+https://www.facebook.com/groups/624645023291178/posts/720135010408845/
+
+![oni21](https://github.com/user-attachments/assets/9530f374-7bce-4cbf-a702-b6e109fab529)
+
+====================================
 ### Uncle Chop's Rocket Shop [Gemini AI] No.728
 https://web.facebook.com/groups/624645023291178/posts/720060570416289
 
