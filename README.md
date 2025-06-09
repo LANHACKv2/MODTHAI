@@ -1,5 +1,10 @@
 # MODTHAI
 ====================================
+### American Arcadia V1.0.2 Mod Thai [Gemini AI] No.731 
+https://web.facebook.com/groups/624645023291178/posts/721431386945874
+![2](https://github.com/user-attachments/assets/b6a23e49-3a0b-495c-921c-4b2940bc95d7)
+
+====================================
 ### Rune Factory Guardians of Azuma V1.0.2 Mod Thai [Gemini AI] No.730 
 https://web.facebook.com/groups/624645023291178/posts/720708470351499
 
