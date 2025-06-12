@@ -228,3 +228,9 @@ https://www.facebook.com/groups/624645023291178/posts/650346847387662/
 ![dst](https://github.com/user-attachments/assets/d8f514bf-6ecc-4556-b4d8-842138078cb0)
 
 ====================================
+### Tropico 6 - Nintendo Switch™ Edition v1.0.6 [พอร์ตจากม็อดภาษาไทยของ PC โดยเพจ SimsColony]
+https://www.facebook.com/groups/624645023291178/posts/650344267387920/
+
+![tp6](https://github.com/user-attachments/assets/87f5c579-48b3-43ea-946c-0097a8407812)
+
+====================================
