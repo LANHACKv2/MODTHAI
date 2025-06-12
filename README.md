@@ -234,3 +234,9 @@ https://www.facebook.com/groups/624645023291178/posts/650344267387920/
 ![tp6](https://github.com/user-attachments/assets/87f5c579-48b3-43ea-946c-0097a8407812)
 
 ====================================
+### Persona 5 Tactica v1.0.2+DLC [แปลจากกูเกิลแปล]
+https://www.facebook.com/groups/624645023291178/posts/650342310721449/
+
+![p5t](https://github.com/user-attachments/assets/d8f4fff2-8661-411c-b801-26bb7a2bfa03)
+
+====================================
