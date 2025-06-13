@@ -1,5 +1,11 @@
 # MODTHAI
 ====================================
+### Immortals Fenyx Rising ม็อดไทย ตัวเกมเวอร์ชั่น 1.3.4 แปลจาก Gemini
+https://www.facebook.com/groups/624645023291178/posts/723395836749429
+
+![506451754_741157935010525_963843686656933789_n](https://github.com/user-attachments/assets/6b3e3608-269f-4c86-8b35-f4351b565587)
+
+====================================
 ### Chocobo GP V1.4.1 Mod Thai [Gemini AI] No.732
 https://web.facebook.com/groups/624645023291178/posts/722157143539965
 
