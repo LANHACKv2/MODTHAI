@@ -1,5 +1,11 @@
 # MODTHAI
 ====================================
+### Final Fantasy X-HD v 1.00 [แปลจาก Gemini AI]
+https://drive.google.com/file/d/1vUx0lqqd0e_JpMqw2mCSou93u1HkSN6j/view?usp=sharing
+
+![501356079_2467539753600336_252519329342092475_n](https://github.com/user-attachments/assets/0f2e519c-1212-43f0-ad34-c478f46d8bbe)
+
+====================================
 ### Immortals Fenyx Rising ม็อดไทย ตัวเกมเวอร์ชั่น 1.3.4 แปลจาก Gemini
 https://www.facebook.com/groups/624645023291178/posts/723395836749429
 
