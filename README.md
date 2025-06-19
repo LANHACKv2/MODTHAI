@@ -1,5 +1,11 @@
 # MODTHAI
 ====================================
+### Persona 4 Golden v1.0.2 [แปลจาก Gemini AI]
+https://www.facebook.com/groups/624645023291178/posts/728336279588718
+
+![p4gc1](https://github.com/user-attachments/assets/a95cf1ec-c905-4112-a478-03b52d46cd79)
+
+====================================
 ### Final Fantasy X-HD v 1.00 [แปลจาก Gemini AI]
 https://drive.google.com/file/d/1vUx0lqqd0e_JpMqw2mCSou93u1HkSN6j/view?usp=sharing
 
