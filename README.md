@@ -1,5 +1,11 @@
 # MODTHAI
 ====================================
+### The Operator V2.0 Mod Thai [Gemini AI] No.734
+https://web.facebook.com/groups/624645023291178/posts/729760569446289
+
+![1](https://github.com/user-attachments/assets/df9d5936-0747-45fb-a1db-382324f254d5)
+
+====================================
 ### Persona 4 Golden v1.0.2 [แปลจาก Gemini AI]
 https://www.facebook.com/groups/624645023291178/posts/728336279588718
 
