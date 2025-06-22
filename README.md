@@ -1,5 +1,11 @@
 # MODTHAI
 ====================================
+### Gimmick! 2 V1.3.1 Mod Thai+Ch [Gemini AI] No.738
+https://web.facebook.com/groups/624645023291178/posts/730135972742082
+
+![4](https://github.com/user-attachments/assets/644be4da-2bec-4804-99f2-89ae5602885e)
+
+====================================
 ### Infernax V1.05.017 Mod Thai+CH [Gemini AI] No.737
 https://web.facebook.com/groups/624645023291178/posts/730131049409241
 
