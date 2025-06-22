@@ -1,5 +1,11 @@
 # MODTHAI
 ====================================
+### Infernax V1.05.017 Mod Thai+CH [Gemini AI] No.737
+https://web.facebook.com/groups/624645023291178/posts/730131049409241
+
+![3](https://github.com/user-attachments/assets/26a6e0b6-ca62-43a9-ace6-646e4e939886)
+
+====================================
 ### Songs of Conquest V1.5.6 Mod Thai [Gemini AI] No.736
 https://web.facebook.com/groups/624645023291178/posts/730125536076459
 
