@@ -1,5 +1,11 @@
 # MODTHAI
 ====================================
+### Songs of Conquest V1.5.6 Mod Thai [Gemini AI] No.736
+https://web.facebook.com/groups/624645023291178/posts/730125536076459
+
+![2](https://github.com/user-attachments/assets/52b42447-115a-4e99-af34-840d6728310a)
+
+====================================
 ### Vessels of Decay v1.0.0 Mod Thai [Gemini AI] No.735
 https://web.facebook.com/groups/624645023291178/posts/730116766077336
 
