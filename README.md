@@ -306,3 +306,9 @@ https://www.facebook.com/groups/624645023291178/posts/647301731025507/
 ![502459165_2467958200225158_6628830121439950042_n](https://github.com/user-attachments/assets/ba983c4e-5596-4526-aefa-67978fb3bbcc)
 
 ====================================
+### Dragon Quest Builders 2 v1.7.3(ไม่มีb) + 19DLCs [แปลจาก Gemini AI] เกม no. 673
+https://www.facebook.com/groups/624645023291178/posts/645499591205721/
+
+![dq2](https://github.com/user-attachments/assets/eac87050-c5c0-46fd-a9cb-88ec5e662dea)
+
+====================================
