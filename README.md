@@ -288,3 +288,9 @@ https://www.facebook.com/groups/624645023291178/posts/650342310721449/
 ![p5t](https://github.com/user-attachments/assets/d8f4fff2-8661-411c-b801-26bb7a2bfa03)
 
 ====================================
+### Monster Hunter Stories 2: Wings of Ruin v 1.5.3 [แปลจาก Gemini AI] เกม no. 564
+https://www.facebook.com/groups/624645023291178/posts/648271504261863/
+
+![mhs2](https://github.com/user-attachments/assets/cd4beb58-8aa5-49f4-a958-6988a7af567a)
+
+====================================
