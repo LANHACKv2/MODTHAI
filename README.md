@@ -312,3 +312,9 @@ https://www.facebook.com/groups/624645023291178/posts/645499591205721/
 ![dq2](https://github.com/user-attachments/assets/eac87050-c5c0-46fd-a9cb-88ec5e662dea)
 
 ====================================
+###  Dragon Quest 1 v1.0.0 (ตัวเกมที่ผมโหลดมาทำม็อดเป็นแบบเกมเดียวๆ ไม่ใช่แบบรวมสามภาคนะครับ) [แปลจาก Gemini AI] No. 545
+https://www.facebook.com/groups/624645023291178/posts/645105601245120/
+
+![502464588_2467951026892542_178817128777378294_n](https://github.com/user-attachments/assets/49e70ab7-037c-45f1-87d9-392567a8b57c)
+
+====================================
