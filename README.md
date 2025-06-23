@@ -294,3 +294,9 @@ https://www.facebook.com/groups/624645023291178/posts/648271504261863/
 ![mhs2](https://github.com/user-attachments/assets/cd4beb58-8aa5-49f4-a958-6988a7af567a)
 
 ====================================
+### Monster Hunter Stories v1.0.1 No. 542
+https://www.facebook.com/groups/624645023291178/posts/648270070928673/
+
+![mhs](https://github.com/user-attachments/assets/15444a85-b0b9-43ef-9f64-613eed44c21c)
+
+====================================
