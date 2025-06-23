@@ -300,3 +300,9 @@ https://www.facebook.com/groups/624645023291178/posts/648270070928673/
 ![mhs](https://github.com/user-attachments/assets/15444a85-b0b9-43ef-9f64-613eed44c21c)
 
 ====================================
+### Astral Chain v1.0.1  [แปลจาก Gemini AI]
+https://www.facebook.com/groups/624645023291178/posts/647301731025507/
+
+![502459165_2467958200225158_6628830121439950042_n](https://github.com/user-attachments/assets/ba983c4e-5596-4526-aefa-67978fb3bbcc)
+
+====================================
