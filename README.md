@@ -318,3 +318,9 @@ https://www.facebook.com/groups/624645023291178/posts/645105601245120/
 ![502464588_2467951026892542_178817128777378294_n](https://github.com/user-attachments/assets/49e70ab7-037c-45f1-87d9-392567a8b57c)
 
 ====================================
+###  Darkest Dungeon II v 1.0.2 + DLC [แปลจาก Gemini AI] เกม no. 548
+https://www.facebook.com/groups/624645023291178/posts/645103801245300/
+
+![dd1](https://github.com/user-attachments/assets/e624ddc4-5e2d-4d44-a55d-ac86b04456a4)
+
+====================================
