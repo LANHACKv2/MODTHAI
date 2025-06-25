@@ -1,5 +1,11 @@
 # MODTHAI
 ====================================
+### RAIDOU Remastered: The Mystery of the Soulless Army V1.02 Mod Thai [Gemini] No.739
+https://web.facebook.com/groups/624645023291178/posts/732516295837383
+
+![1](https://github.com/user-attachments/assets/090c6776-5930-407f-9652-4b92e96dc247)
+
+====================================
 ### Gimmick! 2 V1.3.1 Mod Thai+Ch [Gemini AI] No.738
 https://web.facebook.com/groups/624645023291178/posts/730135972742082
 
