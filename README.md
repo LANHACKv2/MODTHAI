@@ -1,5 +1,11 @@
 # MODTHAI
 ====================================
+### Out Of Sight V1.0.1 Mod Thai [Gemini AI] No.740
+https://web.facebook.com/groups/624645023291178/posts/733218792433800
+
+![0](https://github.com/user-attachments/assets/75f45bcc-911d-4963-8e07-1e73610ee90e)
+
+====================================
 ### RAIDOU Remastered: The Mystery of the Soulless Army V1.02 Mod Thai [Gemini] No.739
 https://web.facebook.com/groups/624645023291178/posts/732516295837383
 
