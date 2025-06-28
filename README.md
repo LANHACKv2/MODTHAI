@@ -342,3 +342,9 @@ https://www.facebook.com/groups/624645023291178/posts/645103801245300/
 ![dd1](https://github.com/user-attachments/assets/e624ddc4-5e2d-4d44-a55d-ac86b04456a4)
 
 ====================================
+###  Pocky & Rocky Reshrined V1.0.1 Mod Thai No.475
+https://web.facebook.com/groups/624645023291178/posts/734705688951777
+
+![11](https://github.com/user-attachments/assets/4a8f65c5-fb64-477a-91a6-c7c542fd0755)
+
+====================================
