@@ -1,5 +1,11 @@
 # MODTHAI
 ====================================
+### Arisen Force Life Devotee V1.0.0.20250403 Mod Thai+CH [Gemini AI] No.742
+https://web.facebook.com/groups/624645023291178/posts/735359732219706
+
+![1111](https://github.com/user-attachments/assets/f03a28e1-0b0f-4786-b430-33c3f0db062c)
+
+====================================
 ### Front Mission 3 Remake V1.0.1 Mod Thai+CH [Gemini] No.741
 https://web.facebook.com/groups/624645023291178/posts/734528478969498
 
