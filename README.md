@@ -1,5 +1,11 @@
 # MODTHAI
 ====================================
+### MOBILE SUIT GUNDAM SEED BATTLE DESTINY REMASTERED V1.0.1+CH+Unlock 60 FPS [Gemini AI] No.743
+https://web.facebook.com/groups/624645023291178/posts/736495518772794
+
+![0](https://github.com/user-attachments/assets/ee8407a5-178f-4ac0-a72e-742d7df047e0)
+
+====================================
 ### Arisen Force Life Devotee V1.0.0.20250403 Mod Thai+CH [Gemini AI] No.742
 https://web.facebook.com/groups/624645023291178/posts/735359732219706
 
