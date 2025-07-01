@@ -1,5 +1,11 @@
 # MODTHAI
 ====================================
+### Persona 3 Portable v1.0.2 [แปลจาก Gemini AI] No.744
+https://www.facebook.com/groups/624645023291178/posts/737162695372743
+
+![p3pcover1](https://github.com/user-attachments/assets/f41c8532-bfeb-41ab-b38e-87ce7715d4c6)
+
+====================================
 ### MOBILE SUIT GUNDAM SEED BATTLE DESTINY REMASTERED V1.0.1+CH+Unlock 60 FPS [Gemini AI] No.743
 https://web.facebook.com/groups/624645023291178/posts/736495518772794
 
