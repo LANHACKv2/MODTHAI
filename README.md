@@ -1,5 +1,11 @@
 # MODTHAI
 ====================================
+### Potion Permit Complete Edition V1.0.3 Mod Thai [Gemini] No.745
+https://web.facebook.com/groups/624645023291178/posts/738604081895271
+
+![700](https://github.com/user-attachments/assets/d72d20e4-4923-4395-a3a1-137b5ca1fe7c)
+
+====================================
 ### Persona 3 Portable v1.0.2 [แปลจาก Gemini AI] No.744
 https://www.facebook.com/groups/624645023291178/posts/737162695372743
 
