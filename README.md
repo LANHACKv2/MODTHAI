@@ -1,5 +1,11 @@
 # MODTHAI
 ====================================
+### Sea Fantasy V1.0.3 Mod Thai [Gemini AI] No.746
+https://web.facebook.com/groups/624645023291178/posts/739348121820867
+
+![0](https://github.com/user-attachments/assets/6ea04bec-bc8c-476b-8d78-fe207d6257b7)
+
+====================================
 ### Potion Permit Complete Edition V1.0.3 Mod Thai [Gemini] No.745
 https://web.facebook.com/groups/624645023291178/posts/738604081895271
 
