@@ -1,5 +1,11 @@
 # MODTHAI
 ====================================
+### Rune Factory 4 Special V1.0.1 Mod Thai [Gemini AI] No.748
+https://www.facebook.com/groups/624645023291178/posts/743824518039894/
+
+![2025070808415600-AA47CFF0F3DDF5F96CA7A1EA6C4DCF0A](https://github.com/user-attachments/assets/5f3bcfd3-ba97-4f8e-b73a-99f819e3f866)
+
+====================================
 ### Rune Factory 3 Special V1.0.4 Mod Thai [Gemini AI] No.747
 https://web.facebook.com/groups/624645023291178/posts/742182408204105
 
