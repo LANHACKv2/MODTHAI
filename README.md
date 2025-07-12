@@ -396,3 +396,9 @@ https://web.facebook.com/groups/624645023291178/posts/737861528636193
 ![000](https://github.com/user-attachments/assets/7ebdc262-45e7-41e2-bf6a-cf06307bd784)
 
 ====================================
+###  The Plucky Squire V1.0.2 Mod Thai No.550
+https://web.facebook.com/groups/624645023291178/posts/745522257870120
+
+<img width="355" height="200" alt="1" src="https://github.com/user-attachments/assets/b3f251b9-fb91-4ea3-872b-784e21e55f86" />
+
+====================================
