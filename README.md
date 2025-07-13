@@ -1,5 +1,11 @@
 # MODTHAI
 ====================================
+### Eternights V1.0.2 Mod Thai [Gemini AI] No.749
+https://web.facebook.com/groups/624645023291178/posts/746258351129844
+
+<img width="355" height="200" alt="11" src="https://github.com/user-attachments/assets/a9f9a918-b6a0-47d0-b0ae-f6a8fd5960b8" />
+
+====================================
 ### Rune Factory 4 Special V1.0.1 Mod Thai [Gemini AI] No.748
 https://www.facebook.com/groups/624645023291178/posts/743824518039894/
 
