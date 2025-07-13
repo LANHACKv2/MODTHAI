@@ -1,5 +1,11 @@
 # MODTHAI
 ====================================
+### PATAPON 1+2 REPLAY V1.0.2 Mod Thai [Gemini AI] No.750
+https://web.facebook.com/groups/624645023291178/posts/746961724392840
+
+<img width="355" height="200" alt="1" src="https://github.com/user-attachments/assets/19af08f0-13da-4ea7-91e6-fe3fd26b02db" />
+
+====================================
 ### Eternights V1.0.2 Mod Thai [Gemini AI] No.749
 https://web.facebook.com/groups/624645023291178/posts/746258351129844
 
