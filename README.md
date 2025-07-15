@@ -414,3 +414,9 @@ https://web.facebook.com/groups/624645023291178/posts/745522257870120
 <img width="355" height="200" alt="1" src="https://github.com/user-attachments/assets/b3f251b9-fb91-4ea3-872b-784e21e55f86" />
 
 ====================================
+###  Caravan SandWitch v 1.0.3 [แปลจาก Gemini AI] No. 562
+https://www.facebook.com/groups/624645023291178/posts/645101951245485/
+
+![caravan](https://github.com/user-attachments/assets/974868ee-da6b-4b2b-9fbf-4475a84c061e)
+
+====================================
