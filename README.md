@@ -420,3 +420,9 @@ https://www.facebook.com/groups/624645023291178/posts/645101951245485/
 ![caravan](https://github.com/user-attachments/assets/974868ee-da6b-4b2b-9fbf-4475a84c061e)
 
 ====================================
+###  Balatro v1.0.9 [พอร์ตจากม็อดภาษาไทยของ PC โดยเพจไม่เมาไม่แปล] เกม no. 602
+https://www.facebook.com/groups/624645023291178/posts/645100151245665/
+
+![balotro](https://github.com/user-attachments/assets/b51bf033-a6b5-482c-9380-447e26192991)
+
+====================================
