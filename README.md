@@ -444,9 +444,15 @@ https://www.facebook.com/groups/624645023291178/posts/645100151245665/
 ![balotro](https://github.com/user-attachments/assets/b51bf033-a6b5-482c-9380-447e26192991)
 
 ====================================
-###  ม็อดภาษาไทยเกม 13 Sentinels: Aegis Rim v1.10  [แปลจากกูเกิลแปล]
+### 13 Sentinels: Aegis Rim v1.10  [แปลจากกูเกิลแปล]
 https://www.facebook.com/groups/624645023291178/posts/645098174579196/
 
 ![13](https://github.com/user-attachments/assets/a158502b-5772-47f4-a812-3ff35a2063f0)
+
+====================================
+###  Super Mario Bros. Wonder v1.0.0-1.0.1 [แปลโดย Google Translate 100%]
+https://www.facebook.com/groups/624645023291178/posts/642349828187364/
+
+![mariowander](https://github.com/user-attachments/assets/b4121800-0782-4ef8-9df7-03f4e05d23e1)
 
 ====================================
