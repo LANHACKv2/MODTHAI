@@ -1,5 +1,11 @@
 # MODTHAI
 ====================================
+### Deltarune v1.02 [แปลจาก Gemini AI] No.753
+https://www.facebook.com/groups/624645023291178/posts/753032593785753
+
+![delcoverall1](https://github.com/user-attachments/assets/3c94e3ec-8110-46f4-9c41-6a232755b682)
+
+====================================
 ### Last Time I Saw You V1.0.9b Mod Thai [Gemini AI] No.752
 https://web.facebook.com/groups/624645023291178/posts/752840287138317
 
