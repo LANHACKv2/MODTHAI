@@ -1,5 +1,11 @@
 # MODTHAI
 ====================================
+### The Wandering Village V1.0.1 Mod Thai [Gemini AI] No.754
+https://web.facebook.com/groups/624645023291178/posts/753561767066169
+
+![00](https://github.com/user-attachments/assets/4c6a6b2a-4279-41ff-8b0f-468838da9f59)
+
+====================================
 ### Deltarune v1.02 [แปลจาก Gemini AI] No.753
 https://www.facebook.com/groups/624645023291178/posts/753032593785753
 
