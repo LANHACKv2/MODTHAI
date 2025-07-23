@@ -1,5 +1,11 @@
 # MODTHAI
 ====================================
+### Shadow Labyrinth V1.0.3 Mod Thai [Gemini AI] No.755
+https://web.facebook.com/groups/624645023291178/posts/754333100322369
+
+<img width="355" height="200" alt="000" src="https://github.com/user-attachments/assets/d600bfc9-7d1c-4f1d-8263-d3c2772f832e" />
+
+====================================
 ### The Wandering Village V1.0.1 Mod Thai [Gemini AI] No.754
 https://web.facebook.com/groups/624645023291178/posts/753561767066169
 
