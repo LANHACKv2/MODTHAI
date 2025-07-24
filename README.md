@@ -1,5 +1,11 @@
 # MODTHAI
 ====================================
+### HUNTER×HUNTER NEN×IMPACT V1.0.2 Mod Thai [Gemini AI] No.756
+https://web.facebook.com/groups/624645023291178/posts/755053496916996
+
+<img width="355" height="200" alt="11" src="https://github.com/user-attachments/assets/e4648b0f-5c65-48b8-9bb2-c8255b35f6dc" />
+
+====================================
 ### Shadow Labyrinth V1.0.3 Mod Thai [Gemini AI] No.755
 https://web.facebook.com/groups/624645023291178/posts/754333100322369
 
