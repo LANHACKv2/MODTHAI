@@ -1,5 +1,11 @@
 # MODTHAI
 ====================================
+### Warhammer 40,000 Mechanicus V1.4.4 Mod Thai [Gemini AI] No.757
+https://web.facebook.com/groups/624645023291178/posts/758228869932792
+
+<img width="355" height="200" alt="1" src="https://github.com/user-attachments/assets/061894e5-0ce7-4468-a6ad-1f9c6ddb3543" />
+
+====================================
 ### HUNTER×HUNTER NEN×IMPACT V1.0.2 Mod Thai [Gemini AI] No.756
 https://web.facebook.com/groups/624645023291178/posts/755053496916996
 
