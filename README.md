@@ -3,7 +3,7 @@
 ### Stardew Valley v1.6.15.3 No.758
 https://www.facebook.com/groups/624645023291178/posts/759741993114813
 
-![Cover1](https://github.com/user-attachments/assets/d2c80512-6bc5-4e45-9dbb-854560727286)
+![Cover1](https://github.com/user-attachments/assets/2f61eb46-bfc5-4cac-86d7-a9b9d381af2e)
 
 ====================================
 ### Warhammer 40,000 Mechanicus V1.4.4 Mod Thai [Gemini AI] No.757
