@@ -1,5 +1,11 @@
 # MODTHAI
 ====================================
+### NINJA GAIDEN Ragebound V1.0.3 Mod Thai+Ch [Gemini AI] No.760
+https://web.facebook.com/groups/624645023291178/posts/761914962897516
+
+<img width="355" height="200" alt="1" src="https://github.com/user-attachments/assets/1a8829f9-7ebf-42e7-8dd4-8a9298a17977" />
+
+====================================
 ### DIGIMON SURVIVE V1.0.4 Mod Thai [Gemini AI] No.759
 https://web.facebook.com/groups/624645023291178/posts/761434532945559
 
