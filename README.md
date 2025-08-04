@@ -1,5 +1,11 @@
 # MODTHAI
 ====================================
+### Demon Slayer -Kimetsu no Yaiba- The Hinokami Chronicles 2 เวอร์ชั่น 1.0.2 แปลโดย AI No.761
+https://web.facebook.com/groups/624645023291178/posts/763478766074469
+
+<img width="355" height="200" alt="0_n" src="https://github.com/user-attachments/assets/85e5634b-b5b0-4c24-b130-44a5b00aa759" />
+
+====================================
 ### NINJA GAIDEN Ragebound V1.0.3 Mod Thai+Ch [Gemini AI] No.760
 https://web.facebook.com/groups/624645023291178/posts/761914962897516
 
