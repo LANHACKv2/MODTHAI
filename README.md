@@ -1,5 +1,11 @@
 # MODTHAI
 ====================================
+### Strike Mission V0.3 Mod Thai [Gemini AI] No.763
+https://web.facebook.com/groups/624645023291178/posts/763613622727650
+
+<img width="355" height="200" alt="000" src="https://github.com/user-attachments/assets/88738c6f-f674-4743-9bb9-42040ded5bf9" />
+
+====================================
 ### Day of the Shell V1.1 Mod Thai [Gemini AI] No.762
 https://web.facebook.com/groups/624645023291178/posts/763609892728023
 
