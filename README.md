@@ -1,5 +1,11 @@
 # MODTHAI
 ====================================
+### Day of the Shell V1.1 Mod Thai [Gemini AI] No.762
+https://web.facebook.com/groups/624645023291178/posts/763609892728023
+
+<img width="355" height="200" alt="00" src="https://github.com/user-attachments/assets/cdc4df0e-393f-46c7-9599-414c21cbfed0" />
+
+====================================
 ### Demon Slayer -Kimetsu no Yaiba- The Hinokami Chronicles 2 เวอร์ชั่น 1.0.2 แปลโดย AI No.761
 https://web.facebook.com/groups/624645023291178/posts/763478766074469
 
