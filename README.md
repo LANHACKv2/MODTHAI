@@ -1,5 +1,11 @@
 # MODTHAI
 ====================================
+### Pokémon Scarlet แปลโดย AI No.764
+https://web.facebook.com/groups/624645023291178/posts/763942229361456
+
+<img width="355" height="200" alt="_n" src="https://github.com/user-attachments/assets/571c849b-65f6-44c0-85a0-03fe82f2681a" />
+
+====================================
 ### Strike Mission V0.3 Mod Thai [Gemini AI] No.763
 https://web.facebook.com/groups/624645023291178/posts/763613622727650
 
