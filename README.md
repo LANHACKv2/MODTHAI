@@ -3,7 +3,7 @@
 ### Captain Tsubasa: Rise of New Champions Month 1 Edition v1.44 + 27DLCs No.765
 https://www.facebook.com/groups/624645023291178/posts/765299752559037/
 
-![529446869_2530303803990597_1934485565661897980_n](https://github.com/user-attachments/assets/db663da8-1451-4f9e-832d-1ce51299056a)
+![529446869_2530303803990597_1934485565661897980_n](https://github.com/user-attachments/assets/2b939b5b-6e83-43af-89fe-07d1274a2af7)
 
 ====================================
 ### Pokémon Scarlet แปลโดย AI No.764
