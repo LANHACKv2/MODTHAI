@@ -1,5 +1,11 @@
 # MODTHAI
 ====================================
+### THE HOUSE OF THE DEAD 2 Remake V1.0.0 Mod Thai [Gemini AI] No.766
+https://web.facebook.com/groups/624645023291178/posts/765904569165222
+
+<img width="355" height="200" alt="00" src="https://github.com/user-attachments/assets/cc407d0f-777e-4560-8557-0e63f776cca2" />
+
+====================================
 ### Captain Tsubasa: Rise of New Champions Month 1 Edition v1.44 + 27DLCs No.765
 https://www.facebook.com/groups/624645023291178/posts/765299752559037/
 
