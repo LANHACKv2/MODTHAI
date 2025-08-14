@@ -1,5 +1,11 @@
 # MODTHAI
 ====================================
+### DARK SOULS: REMASTERED v1.0.3 [พอร์ตจากม็อดของ pc ที่ทำโดย Lnent's archive] No.767
+https://www.facebook.com/groups/624645023291178/posts/770249718730707/
+
+![532439473_2536192623401715_8543632209336670548_n](https://github.com/user-attachments/assets/7a493f39-21e1-40c1-85c0-bc78f8ad0d34)
+
+====================================
 ### THE HOUSE OF THE DEAD 2 Remake V1.0.0 Mod Thai [Gemini AI] No.766
 https://web.facebook.com/groups/624645023291178/posts/765904569165222
 
