@@ -1,5 +1,11 @@
 # MODTHAI
 ====================================
+### Ghost Trick: Phantom Detective v1.0.0 [แปลจาก Gemini AI] No.768
+https://www.facebook.com/groups/624645023291178/posts/776253244797021/
+
+![Cover1](https://github.com/user-attachments/assets/34d44975-10a5-4daa-8490-6e617b299e14)
+
+====================================
 ### DARK SOULS: REMASTERED v1.0.3 [พอร์ตจากม็อดของ pc ที่ทำโดย Lnent's archive] No.767
 https://www.facebook.com/groups/624645023291178/posts/770249718730707/
 
